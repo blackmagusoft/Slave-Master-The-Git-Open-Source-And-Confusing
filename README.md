@@ -3,6 +3,6 @@ Can't make heads or tales, because it's mishandled open source version....read f
 
 The purpose here os for an additional laugh.
 
-The whole gamne is availlable for purchase on Steam: store.steampowered.com/app/890470/Slave_Master_The_Game/
+The whole gamne is availlable for purchase on Steam: https://store.steampowered.com/app/890470/Slave_Master_The_Game/
 
 Site: www.slavemasteroffline.com
